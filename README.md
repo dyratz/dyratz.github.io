@@ -1,1 +1,3 @@
 # dyratz.github.io
+Um so this is the first time when i'm trying this and know there probably will be too many mistakes...
+Thank u for understanding!^^
